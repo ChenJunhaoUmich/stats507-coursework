@@ -1,0 +1,2 @@
+# stats507Fa2024
+stats507_24fall_Umich
